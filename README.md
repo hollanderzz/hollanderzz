@@ -1,16 +1,37 @@
-## Hi there 👋
-
-<!--
-**hollanderzz/hollanderzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/da/14/a4/da14a4ae49e51b26107ff1e7db633f81.jpg" />
+<p align="center">${\textsf{\color{#C42304}  Shane Hollander / Will Byers . }}$
+<p align="center">${\textsf{\color{#C47704}  Mama/Joyce @DoodlebugPT - Mikey/Ron @pwuppylove - ILYA!!/LOML!!<3 @willbylerr }}$
+  <p align="center">${\textsf{\color{#C47704}  (mikey!!) @pwuppylove - ILYA!!/LOML!!<3 }}$
+    <p align="center">${\textsf{\color{#C47704}  @pumpkindrunk }}$
+      
+<p align="center">${\textsf{\color{#C47704}  THEY/HE/ASK }}$
+<p align="center">${\textsf{\color{#C49E04}  ST/BYLER/MILEVEN/HEATEDRIVALRLY FANS INTERACT , , , DOUBLES DNI , }}$
+<p align="center">${\textsf{\color{#64C404}  IDRC WHO BOTHERS ME ! ! I DO BLOCK EASILY . }}$
+<p align="center">${\textsf{\color{#046AC4}  THIS DOES NOT MEAN TAKE ME FOR GRANTED. }}$
+<p align="center">${\textsf{\color{#6A04C4}  Fun fact; Hate is amusing and I find humor in it rather than feel bothered by it. }}$
+<p align="center">${\textsf{\color{#6A04C4}   in it rather than feel bothered by it. }}$
+<p align="center">${\textsf{\color{#C40497} RANDOM INFORMATION , , , }}$
+<p align="center">${\textsf{\color{#C4045A} Duffer brother supporters DNI. }}$
+<p align="center">${\textsf{\color{#C4045A} MY SHIPS - Byler, Bychance, Byclair, bywheelchance, Mileven, Elmax, Lumax, Rovickie, Ronance, Steddie, Harringrove, Stonathan, Jopper, Henderhop, Jancy}}$
+<p align="center">${\textsf{\color{#C4045A} Stancy, Henclair, Murrlexei, Bowclair, Joyren, Bywheelclair, Harringroveson.. other ships are Rarl, Regan(rick/negan), stenbrough, reddie, }}$
+<p align="center">${\textsf{\color{#C4045A} so much more . }}$
+<img width="1092" height="450" alt="image" src="https://i.pinimg.com/736x/79/d0/c6/79d0c6e7e13e1ff62eace0486e69bf4e.jpg" />
+<img width="1170" height="246" alt="image" src="https://media1.tenor.com/m/CARgJFTXTO4AAAAC/nat20-d20.gif)" />
+<img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
+<img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/a8/5f/93/a85f9329448265e53818b472452bd6a0.jpg" />
+<img width="1092" height="211" alt="image" src="https://i.pinimg.com/1200x/e6/95/c4/e695c48abd68cdd774dc79246bd21b7a.jpg" />
+<img width="1200" height="245" alt="image" src="https://i.pinimg.com/1200x/6a/34/95/6a3495bb7f34240d641ab07b2bd21271.jpg" />
+<img width="1200" height="240" alt="image" src="https://i.pinimg.com/1200x/7c/c1/37/7cc13759c29dcca674bf001ac4a68b4b.jpg" />
+<img width="1195" height="245" alt="image" src="https://i.pinimg.com/1200x/4b/cf/02/4bcf02ad8cc41b0dd938af6bfb7b8682.jpg" />
+<img width="1094" height="224" alt="image" src="https://i.pinimg.com/1200x/38/71/4e/38714e5749d81080d61b6bbf0978855a.jpg" />
+<img width="1200" height="245" alt="image" src="https://i.pinimg.com/736x/44/12/df/4412df12e5c302c24f6d68f0a0bcf65a.jpg" />
+<img width="1200" height="373" alt="image" src="https://i.pinimg.com/736x/ff/14/a9/ff14a9073570c43c3e51a3df9322c242.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/1200x/6c/6a/45/6c6a45149c23d360cc561b34ff994e2d.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/736x/16/f8/d6/16f8d6d531a0eda5f180af71af6b73fe.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/1200x/57/52/46/575246deaee739293183d14b075b44b8.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/736x/e1/cf/29/e1cf295658ad91420046018e59943f34.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/736x/4f/7f/f0/4f7ff04765085275cdb798225eafa747.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/736x/43/a3/91/43a3910863a3cba511a22e4d5f206e45.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/1200x/d1/d6/8e/d1d68e1c06188de1b9a41373d357368d.jpg" />
+<img width="1200" height="247" alt="image" src="https://https://i.pinimg.com/736x/17/f3/80/17f3809204b3485ec5e5639da3d63e89.jpg" />
+<img width="1200" height="247" alt="image" src="https://i.pinimg.com/736x/0e/4c/0e/0e4c0e8da255a646a17e66fc864daeff.jpg" />
