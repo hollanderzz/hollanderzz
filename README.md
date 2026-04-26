@@ -1,6 +1,6 @@
 <img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/da/14/a4/da14a4ae49e51b26107ff1e7db633f81.jpg" />
 <p align="center">${\textsf{\color{#C42304}  Shane Hollander / Will Byers . }}$
-<p align="center">${\textsf{\color{#C47704}  Mama/Joyce @DoodlebugPT - Mikey/Ron @pwuppylove - ILYA!!/LOML!!<3 @willbylerr }}$
+<p align="center">${\textsf{\color{#C47704}  Mama/Joyce @DoodlebugPT - My Rose<3 @edmunson - My Ilya<3 @pumpkindrunk }}$
     <p align="center">${\textsf{\color{#C47704} I <3 MY ROZY!!! }}$
       
 <p align="center">${\textsf{\color{#C47704}  THEY/HE/ASK }}$
